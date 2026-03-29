@@ -1,2 +1,1 @@
-we are wacthing a movie
-hara hara mahadev
+we are wathing a movie
