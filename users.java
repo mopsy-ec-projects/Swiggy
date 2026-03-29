@@ -1,1 +1,1 @@
-know thw git commands
+updated
